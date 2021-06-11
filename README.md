@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=vedadub" alt="vedadub" /></a> </p>
 
-- 🔭 I’m currently working on [Crypton](https://github.com/CryptonDevelopers/Crypton)
+- 🔭 I’m currently learning new stuff. :)
 
 
 <h3 align="left">Languages and Tools:</h3>
