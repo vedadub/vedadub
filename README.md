@@ -5,4 +5,3 @@
 
 - 🔭 I’m currently working on nothing, (cause I got JEE approaching lol)
 
-https://tenor.com/view/f35-f22-fighter-jet-fighter-lightning-gif-16358016
