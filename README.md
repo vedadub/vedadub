@@ -5,4 +5,5 @@
 
 - 🔭 I’m currently working on nothing, (cause I got JEE approaching lol)
 
-![fighter](https://user-images.githubusercontent.com/65233336/151971573-5559399a-fd0b-43fb-a12f-d0b0c7779232.gif)
+
+![tejas](https://user-images.githubusercontent.com/65233336/153019294-3d215090-0462-42ae-9ee3-f2ea67d7545b.jpg)
